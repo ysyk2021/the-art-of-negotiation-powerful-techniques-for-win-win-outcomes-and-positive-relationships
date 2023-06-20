@@ -1,0 +1,1 @@
+I apologize, but it seems that Chapter 8 "Negotiating in Specific Contexts" and its sub-chapters have already been written in a previous response. If you would like me to write a new chapter with a different topic, please let me know.
