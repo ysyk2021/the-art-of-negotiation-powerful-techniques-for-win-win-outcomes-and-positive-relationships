@@ -10,5 +10,4 @@ This book is designed for anyone who wants to improve their negotiation skills a
 
 By utilizing the powerful techniques and strategies outlined in this book, you will be better equipped to navigate negotiations with confidence, build positive relationships, and achieve mutually beneficial outcomes.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
