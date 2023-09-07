@@ -1,5 +1,3 @@
-Chapter 3: Building Positive Relationships
-==========================================
 
 Building positive relationships is an essential component of successful negotiation. In this chapter, we will discuss strategies for communication, empathy, and trust-building, as well as the benefits of building positive relationships for improved collaboration and compromise.
 

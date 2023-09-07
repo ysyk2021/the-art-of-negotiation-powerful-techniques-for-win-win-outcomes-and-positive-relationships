@@ -1,5 +1,3 @@
-Chapter 2: Preparing for Negotiation
-====================================
 
 Negotiation is a complex process that requires careful preparation. In this chapter, we will explore strategies for goal-setting, information gathering, and environment assessment that can help negotiators prepare effectively for any negotiation.
 

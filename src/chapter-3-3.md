@@ -1,6 +1,3 @@
-# The Benefits of Building Positive Relationships for Improved Collaboration and Compromise
-
-## Introduction
 
 Building positive relationships in negotiation is not just about creating a pleasant atmosphere; it has tangible benefits that can significantly impact the outcome of the negotiation. In this chapter, we will explore the advantages of fostering positive relationships for improved collaboration and compromise. By prioritizing relationship-building, negotiators can create an environment conducive to open communication, joint problem-solving, and finding mutually beneficial solutions.
 

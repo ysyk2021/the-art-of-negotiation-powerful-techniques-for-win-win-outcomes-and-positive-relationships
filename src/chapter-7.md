@@ -1,4 +1,3 @@
-# Chapter 7: Finalizing Agreements and Follow-up
 
 ## Finalizing Agreements and Follow-up
 

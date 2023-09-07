@@ -1,5 +1,3 @@
-Chapter 6: Overcoming Impasse and Deadlock
-==========================================
 
 Overcoming impasse and deadlock is a critical aspect of successful negotiation. In this chapter, we will discuss strategies for dealing with difficult emotions, power imbalances, and cultural differences that can lead to impasse and deadlock in negotiations. We will also explore the benefits of overcoming impasse and deadlock for improved resilience and adaptability.
 

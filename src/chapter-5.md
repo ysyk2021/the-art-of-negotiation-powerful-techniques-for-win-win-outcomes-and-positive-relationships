@@ -1,5 +1,3 @@
-Chapter 5: Finding Common Ground
-================================
 
 Finding common ground is a crucial component of successful negotiation. In this chapter, we will discuss strategies for interest-based bargaining, creative problem-solving, and alternative dispute resolution that can help parties find common ground. We will also explore the benefits of finding common ground for improved synergy and satisfaction.
 

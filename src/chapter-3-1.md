@@ -1,6 +1,3 @@
-# Building Positive Relationships
-
-## Introduction
 
 Negotiation is not just a transactional process; it is an opportunity to build and nurture positive relationships. In this chapter, we will explore the importance of building positive relationships in the context of negotiation. By prioritizing relationship-building, negotiators can create an environment of trust, collaboration, and mutual respect, leading to more successful outcomes and long-term partnerships.
 

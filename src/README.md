@@ -1,4 +1,4 @@
-# Introduction
+
 
 Negotiation is an essential skill in both personal and professional settings. Whether you are negotiating a business deal, a political settlement, or a personal matter, the ability to effectively communicate, listen, and find creative solutions can make all the difference in achieving a successful outcome.
 
@@ -11,3 +11,7 @@ This book is designed for anyone who wants to improve their negotiation skills a
 By utilizing the powerful techniques and strategies outlined in this book, you will be better equipped to navigate negotiations with confidence, build positive relationships, and achieve mutually beneficial outcomes.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

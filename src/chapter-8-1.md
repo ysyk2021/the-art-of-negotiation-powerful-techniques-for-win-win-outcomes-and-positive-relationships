@@ -1,4 +1,3 @@
-# Negotiating in Specific Contexts
 
 Negotiation is a versatile skill that can be applied to various contexts and situations. This chapter explores the art of negotiating in specific contexts, highlighting the unique challenges and strategies for success.
 

@@ -1,5 +1,3 @@
-Chapter 4: Effective Communication
-==================================
 
 Effective communication is a crucial component of successful negotiation. In this chapter, we will discuss strategies for listening, questioning, and assertiveness that can help improve communication during negotiation. We will also explore the benefits of effective communication for improved understanding and resolution.
 

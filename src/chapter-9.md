@@ -1,5 +1,3 @@
-Chapter 9: Conclusion
-=====================
 
 Negotiation is a critical skill that can lead to successful outcomes in both personal and professional settings. This book has explored various strategies and techniques for effective negotiation, including preparing for negotiation, understanding key concepts such as communication, collaboration, and compromise, navigating different types of negotiation, finding common ground, and overcoming impasse and deadlock.
 

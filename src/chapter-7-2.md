@@ -1,5 +1,3 @@
-Strategies for Formalizing Agreements, Implementing Agreements, and Evaluating Outcomes
-=======================================================================================================================================
 
 Finalizing agreements and following up after a negotiation is just as crucial as the negotiation itself. This chapter will explore strategies for formalizing agreements, implementing agreements, and evaluating outcomes to ensure that both parties are satisfied with the outcome and that the negotiated agreement is implemented successfully.
 
