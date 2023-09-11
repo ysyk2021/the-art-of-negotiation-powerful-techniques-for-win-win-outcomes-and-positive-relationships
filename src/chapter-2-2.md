@@ -1,5 +1,4 @@
-Chapter: Strategies for Goal-Setting, Information Gathering, and Environment Assessment
-=======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore powerful strategies for effective goal-setting, information gathering, and environment assessment in the art of negotiation. These techniques will enable you to set clear objectives, gather relevant information, and assess the negotiation environment, leading to win-win outcomes and positive relationships.
 

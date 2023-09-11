@@ -1,5 +1,4 @@
-Chapter: Strategies for Interest-Based Bargaining, Creative Problem-Solving, and Alternative Dispute Resolution
-===============================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore powerful strategies for interest-based bargaining, creative problem-solving, and alternative dispute resolution in the art of negotiation. These techniques will enable you to move beyond positional bargaining, find innovative solutions, and resolve conflicts in a collaborative manner, leading to win-win outcomes and fostering positive relationships.
 

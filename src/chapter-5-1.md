@@ -1,5 +1,4 @@
-Chapter: Finding Common Ground
-==============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore powerful techniques for finding common ground in the art of negotiation. These strategies will enable you to bridge differences, build rapport, and create mutually beneficial agreements that lead to win-win outcomes and foster positive relationships.
 

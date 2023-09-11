@@ -1,5 +1,4 @@
-Chapter: Strategies for Listening, Questioning, and Assertiveness
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore powerful strategies for effective listening, questioning, and assertiveness in the art of negotiation. These techniques will enable you to gather valuable information, understand the other party's perspective, and assert your own interests while maintaining positive relationships and achieving win-win outcomes.
 

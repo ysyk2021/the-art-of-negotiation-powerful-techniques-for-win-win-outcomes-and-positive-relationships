@@ -1,5 +1,4 @@
-Chapter: The Benefits of Finalizing Agreements and Follow-up for Improved Accountability and Success
-====================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the benefits of finalizing agreements and implementing a robust follow-up process in the art of negotiation. These techniques will enable you to solidify mutually beneficial agreements, enhance accountability, and increase the likelihood of successful outcomes while maintaining positive relationships.
 

@@ -1,5 +1,4 @@
-Chapter: Strategies for Dealing with Difficult Emotions, Power Imbalances, and Cultural Differences
-===================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for dealing with difficult emotions, power imbalances, and cultural differences in the art of negotiation. These strategies will help you navigate challenging situations, foster positive relationships, and achieve win-win outcomes.
 

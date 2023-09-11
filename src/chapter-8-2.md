@@ -1,5 +1,4 @@
-Chapter: Strategies for Negotiating in Business, Politics, and Personal Settings
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for effective negotiation in different contexts, including business, politics, and personal settings. These strategies will equip you with the skills to navigate diverse situations and achieve successful outcomes while maintaining positive relationships.
 

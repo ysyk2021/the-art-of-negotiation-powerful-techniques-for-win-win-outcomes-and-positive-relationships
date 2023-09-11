@@ -1,5 +1,4 @@
-Chapter: The Importance of Negotiation for Personal and Professional Success
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of negotiation in achieving personal and professional success. By understanding the importance of negotiation and honing your negotiation skills, you can unlock opportunities, overcome challenges, and build positive relationships that contribute to your overall success.
 

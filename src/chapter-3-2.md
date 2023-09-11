@@ -1,5 +1,4 @@
-Chapter: Strategies for Communication, Empathy, and Trust-Building
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore powerful strategies for effective communication, empathy, and trust-building in the art of negotiation. These techniques will enable you to establish rapport, foster understanding, and cultivate trust, leading to win-win outcomes and positive relationships.
 

@@ -1,5 +1,4 @@
-Chapter: Effective Communication
-================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of effective communication in the art of negotiation. We will delve into key techniques and strategies that can enhance your communication skills, foster understanding, and contribute to win-win outcomes and positive relationships.
 

@@ -1,5 +1,4 @@
-Chapter: Overcoming Impasse and Deadlock
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore powerful techniques for overcoming impasse and deadlock in the art of negotiation. These strategies will help you navigate challenging situations where progress seems to be halted and find creative solutions that lead to win-win outcomes and positive relationships.
 
